@@ -1,1 +1,1 @@
-<!-- DAVI SHOP -->
+<!-- DAVI PLATFORM -->
